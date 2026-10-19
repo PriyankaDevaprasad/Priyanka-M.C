@@ -31,7 +31,7 @@ I'm passionate about transforming data into meaningful insights and developing m
 
 ### 🤝 Connect With Me
 
-- LinkedIn: [My LinkedIn Profile](https://www.linkedin.com/in/priyanka-chandrapaul/)
+- LinkedIn: www.linkedin.com/in/priyanka-chandrapaul-6b3162193 
 
 ---
 
